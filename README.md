@@ -1,3 +1,1 @@
 # TechnoHacks-EduTech
-kkkk
-# lol
